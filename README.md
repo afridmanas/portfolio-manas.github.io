@@ -1,1 +1,1 @@
-# afridmanas.github.io
+# manasafrid.me
